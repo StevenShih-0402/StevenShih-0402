@@ -1,4 +1,6 @@
-💻Programmer x 🖌Novelist x ⚾BaesballFans
+💻Programmer x 🖌Novelist x 🎇Designer x ⚾BaesballFans
+
+
 
 [**Instagram**](https://www.instagram.com/shi_ruizong/)
 
@@ -6,4 +8,4 @@
 
 [**Notion**](https://utopian-dewberry-2f6.notion.site/HOME-1fb4676aee024ba39af9be6c5d1298ff) 
 
-[**HackMD**](https://hackmd.io/@StevenShih-0402)
+[**Medium**](https://medium.com/@steven0210423)
