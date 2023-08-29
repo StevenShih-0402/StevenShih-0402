@@ -1,4 +1,4 @@
-💻Programmer x 🖌Novelist x 🎇Designer x ⚾BaesballFans
+💻Programmer x 🖌Novelist x ⚾BaesballFans
 
 
 
