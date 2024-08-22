@@ -1,11 +1,13 @@
-💻Programmer x 🖌Novelist x ⚾BaesballFans
+💻Programmer x 🖌Novelist x ⚾BaesballFans x 🏓TableTennisFans
 
 
+[**Bahamut**](https://home.gamer.com.tw/homeindex.php?owner=steven051225)
 
-[**Instagram**](https://www.instagram.com/shi_ruizong/)
+[**HackMD**](https://hackmd.io/@StevenShih-0402)
+
+[**Blog**](https://ducknote.notion.site/a380bb4f82f942d19ec045e4d3821a91) 
+
+[**Instagram**](https://www.instagram.com/littleduck_littlecreate/)
 
 [**Linkedin**](https://www.linkedin.com/in/duckshih/)
 
-[**Notion**](https://utopian-dewberry-2f6.notion.site/HOME-1fb4676aee024ba39af9be6c5d1298ff) 
-
-[**Medium**](https://medium.com/@steven0210423)
